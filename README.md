@@ -6,6 +6,10 @@ mark my *worms*
 - schlafen
 - an die wand starren
 - mittagessen kochen
+- essen
+- schlafen
+- spaß haben
+-
 
 völlig normale ergänzung
 
